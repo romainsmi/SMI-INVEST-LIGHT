@@ -1,1 +1,0 @@
-# SMI-INVEST-LIGHT
